@@ -1,0 +1,1 @@
+# Thermodynamic-Spin-Field-Confinement-Predicts-High-Q-Burning-Plasma-TQTU-Based-SPARC-Tokamak-Study
